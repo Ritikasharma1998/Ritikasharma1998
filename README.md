@@ -1,4 +1,4 @@
-👋 Hi, I’m Ritika Sharma, "DIGITAL MARKETING SPECIALIST" 
+### 👋 Hi, I’m Ritika Sharma, "DIGITAL MARKETING SPECIALIST" 
 
 I've worked on many projects related to SEO, Content Strategist, WordPress, ORM, SMM and provide the quality work to the clients. I follow the latest techniques, tactics and strategies to make the project successful. I will only use White Hat SEO techniques.
 
